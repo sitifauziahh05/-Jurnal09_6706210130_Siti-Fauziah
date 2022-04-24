@@ -1,0 +1,1 @@
+# -Jurnal09_6706210130_Siti-Fauziah
